@@ -27,3 +27,10 @@ https://github.com/aanilkumarmh-dot/AnilkumarMH-lab5/blob/main/5d.png
  https://github.com/aanilkumarmh-dot/AnilkumarMH-lab2/blob/main/2a(2).png 
  
  https://github.com/aanilkumarmh-dot/AnilkumarMH-lab2/blob/main/2b.png
+
+
+  https://github.com/aanilkumarmh-dot/AnilkumarMH-lab4/blob/main/4a.png
+  
+  https://github.com/aanilkumarmh-dot/AnilkumarMH-lab4/blob/main/4b.png
+  
+  https://github.com/aanilkumarmh-dot/AnilkumarMH-lab4/blob/main/4c.png
