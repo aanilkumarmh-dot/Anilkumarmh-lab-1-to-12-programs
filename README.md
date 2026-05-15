@@ -34,3 +34,11 @@ https://github.com/aanilkumarmh-dot/AnilkumarMH-lab5/blob/main/5d.png
   https://github.com/aanilkumarmh-dot/AnilkumarMH-lab4/blob/main/4b.png
   
   https://github.com/aanilkumarmh-dot/AnilkumarMH-lab4/blob/main/4c.png
+
+https://github.com/aanilkumarmh-dot/Anilkumarmh-lab10/blob/main/lab10.jpg
+
+https://github.com/aanilkumarmh-dot/Anilkumarmh-lab10/blob/main/lab10b.jpg
+
+
+
+
